@@ -1,4 +1,4 @@
-# 
+# best iMovie for macOS Addon | EQ + version-history is the best iMovie for macOS addon, featuring EQ and version-history. Safe, efficient, and optimized for video editors on macOS.
 
 
 
